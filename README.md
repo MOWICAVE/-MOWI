@@ -4,3 +4,6 @@
 
 
 ![imagen alt](https://github.com/MOWICAVE/-MOWI/blob/482a2d274bda3adef063cb7e39c1f4589e8b1c2d/gif8.gif)
+
+
+　(๑•́ ₃ •̀๑)　잣　me and my gf hehe
